@@ -21,3 +21,8 @@ Though this course is largely non-technical, engineers can also take this course
 
 
 ## [My certification](https://coursera.org/share/4e1aa22083d74b11ec5a40d3c7de54af)
+
+
+
+
+> ![cor.png](https://udacity-reviews-uploads.s3.us-west-2.amazonaws.com/_attachments/399095/1605990156/cor.png)
